@@ -1,0 +1,2 @@
+# sunland-hotel
+Guests can head to the 24-hour front desk for assistance with luggage storage, laundry and currency exchange services. <a href=http://www.hotels-in-vietnam.com/asia/vietnam/ho_chi_minh_saigon_hotels/sunland_hotel.html>Sunland Hotel Ho Chi Minh</a> is best 4-star hotel with discount rates on. Booking online and get special deals: instant room confirmation, breakfast included with best price guarantee
